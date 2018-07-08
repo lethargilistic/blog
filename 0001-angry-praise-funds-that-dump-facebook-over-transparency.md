@@ -1,3 +1,5 @@
+#Angry! Praise Funds That Dump Facebook Over Transparency
+
 [Mark Gilbert's article in Bloomberg
 Opinion](https://www.bloomberg.com/news/articles/2018-06-22/dislike-sustainable-fund-says-dump-facebook)
 is framed as a practical evaluation of [Nordea Funds asset manager Sasja
