@@ -1,4 +1,5 @@
 # Angry! Praise Funds That Dump Facebook Over Transparency
+(2018-07-06, [dev.to](https://dev.to/lethargilistic/angry-praise-funds-that-dump-facebook-over-transparency-ohd))
 
 [Mark Gilbert's article in Bloomberg
 Opinion](https://www.bloomberg.com/news/articles/2018-06-22/dislike-sustainable-fund-says-dump-facebook)
