@@ -1,4 +1,5 @@
 # Letter to Senators Maria Cantwell and Patty Murry in Opposition to the CLASSICS Act
+(2018-07-08)
 
 As your constituent, I urge you to reject the CLASSICS Act and not extend copyright in a way that hurts the general public. 
 
