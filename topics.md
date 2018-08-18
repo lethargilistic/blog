@@ -10,3 +10,4 @@
 * Creating a panopticon of orphan works to create a quantitative argument for reform
 * Do we sacrifice our body autonomy after death, like actors who license themselves to science fiction franchises?
 * Software's role in the bastardization of copyright.
+* History of software corporations lobbying for the US to adopt the Berne Convention
