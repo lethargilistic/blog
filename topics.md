@@ -11,3 +11,4 @@
 * Do we sacrifice our body autonomy after death, like actors who license themselves to science fiction franchises?
 * Software's role in the bastardization of copyright.
 * History of software corporations lobbying for the US to adopt the Berne Convention
+* On the value of old tweets. What did I think of hot button issues years ago? Why preservation of tweets important because microblogging replaces journaling. Don't delete tweets.
