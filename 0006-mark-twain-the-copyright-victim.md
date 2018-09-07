@@ -131,7 +131,7 @@ hogwash that his fairly professionally accomplished daughters did not require
 (he [told a misogynistic
 lie](https://www.uspto.gov/learning-and-resources/newsletter/inventors-eye/mark-twains-copyright-fight)
 that they were "young ladies, who don't know anything and can't do anything."),
-the problem of how society should care forthe elderly is a real problem. My 
+the problem of how society should care for the elderly is a real problem. My 
 question is, why should authors have a separate elderly welfare program at the
 expense of the entire world for a century after its supposed usefulness has died?
 Let alone with Twain, a man who died with a $700,000 estate in 1910 ($18,568,863
