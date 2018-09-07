@@ -21,18 +21,18 @@ a bad reporter (of all the traditional distinctions we've abandoned, why that
 one?), Twain landed a gig for a California newspaper called the *Daily Alta*.
 They wanted to send someone on a vacation to the Sandwich Islands for a few
 months in 1866 and hired Twain for $20 ($317 in 2018) per letter for 50 letters
-detailing his time ($15,850 in 2018). These were well received and fairly
-popular among those who read his account, something Twain, an inveterate
-profiteer, wanted to leverage into more money. He decided to give a live
-lecture on his time in the Sandwich Islands, $1 per person ($16 in 2018). That
-night, scared almost out of his wits by the crowd and $400 richer ($6,340 in
-2018), he decided to take it on the road, speaking all throughout California and
-even in Nevada, making more and more money and attracting a book deal from the
-American Publishing Company on the east coast. They offered him a lot of money,
-and he set to work immediately at adapting his letters into this longer
-travelogue. Only, there was a problem, and there's a division over
-how he found about about it between his *Autobiography* recollection and that of
-an *Alta* executive, Noah Brooks.
+detailing his time ($15,850 in 2018). He sailed on a ship named the *Quaker
+City*. These were well received and fairly popular among those who read his
+account, something Twain, an inveterate profiteer, wanted to leverage into more
+money. He decided to give a live lecture on his time in the Sandwich Islands,
+$1 per person ($16 in 2018). That night, scared almost out of his wits by the
+crowd and $400 richer ($6,340 in 2018), he decided to take it on the road,
+speaking all throughout California and even in Nevada, making more and more
+money and attracting a book deal from the American Publishing Company on the
+east coast. They offered him a lot of money, and he set to work immediately at
+adapting his letters into this longer travelogue. Only, there was a problem,
+and there's a division over how he found about about it between his
+*Autobiography* recollection and that of an *Alta* executive, Noah Brooks.
 
 From Twain's point of view, his book tour continued and expanded further into
 the country, where he seemed utterly unrecognizable and without reputation. Most
