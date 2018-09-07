@@ -166,7 +166,7 @@ precious correspondence with Oliver Wendell Holmes, whose poem Twain had
 unintentionally copied for the dedication in *The Innocents Abroad*. Twain wrote
 Holmes a letter of sincere and deep contrition, destitute of dignity, only for
 Holmes to laugh it off and absolve him of guilt. Twain recalled Holmes writing
-"there was no crime in unconscious plagiarism; that I committed it every day;,
+"there was no crime in unconscious plagiarism; that I committed it every day;
 that he committed it every day, that every man alive on the earth who writes or
 speaks commits it every day and not merely once or twice, but every time he
 opens his mouth; that all our phrasings are spiritualized shadows cast
