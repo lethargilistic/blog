@@ -54,9 +54,9 @@ bill to the successful Chace Act. Even though the solidification of copyright's
 work-for-hire doctrine in *Community for Creative Non-Violence v. Reid* might
 have been 100 years off, and we don't know if Twain explicitly signed away the
 rights like *Reid* would require, work-for-hire was not a foreign concept and we
-can assume the now-standard copyright transfer would have been in the contract.
-The *Alta* had bought the letters and paid for the copyright registration, as
-was their prerogative.
+can assume the now-standard copyright transfer would have been in the contract
+if written today. The *Alta* had bought the letters and paid for the copyright
+registration, as was their prerogative.
 
 Noah Brooks's alternate account recalled his *Daily Alta* colleagues getting
 word of the upcoming book on the East Coast, based on the letters. They were
