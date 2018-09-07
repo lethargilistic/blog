@@ -4,7 +4,7 @@
 I've just spent some time reading in Mark Twain's *Autobiography* to get a feel
 for his famous zeal for copyright and branding. I was struck by--well,
 firstly, his repulsive character--a small anecdote in 1868 that he called the
-*Quater City* Excursion (Vol. 1, pp. 226-226), which has a prelude in 1866. It
+*Quaker City* Excursion (Vol. 1, pp. 226-226), which has a prelude in 1866. It
 seems to be one of, if not the only, time that Twain found himself on the
 receiving end of an entirely valid copyright infringement claim against his *The
 Innocents Abroad*. Twain remains famous as a humorist, it's true, but he was
