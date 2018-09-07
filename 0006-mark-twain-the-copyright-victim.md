@@ -94,8 +94,12 @@ and came on the heels of a book tour wildly successful in its own right. For his
 final product, saying that he ended up using perhaps 10-12 of them and pointedly
 saying that the difference between a version with the letters' aid and one
 without would have been a mere fortnight because he was just that swift a writer
-at the time. Great. That was certainly also an option because facts aren't copyrightable.
-(To be fair, *Baker v. Selden*'s clarification of the idea-expression divide was in 1880)
+at the time. Great. That was certainly also an option because facts aren't
+copyrightable. To be fair, *Baker v. Selden*'s clarification of the
+idea-expression divide was in 1880, but Twain did not believe in an 
+idea-expression divide. ("...I wished he could mention any kind of property
+existing on this planet, property that had a pecuniary value, [which was not 
+derived from an idea or ideas](http://www.thepublicdomain.org/2014/07/19/mark-twain-on-the-need-for-perpetual-copyright/).")
 
 ## Alternatives to perpetual copyright
 What insights into the solutions other than perpetual copyright does the *Quaker
