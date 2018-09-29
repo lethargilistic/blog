@@ -1,6 +1,6 @@
 # Have you gotten advice against something and then done that thing all the time? 
 
-(2018-08-20, [dev.to](https://dev.to/lethargilistic/have-you-gotten-advice-against-something-and-then-done-that-thing-all-the-time-fp7)
+(2018-08-20, [dev.to](https://dev.to/lethargilistic/have-you-gotten-advice-against-something-and-then-done-that-thing-all-the-time-fp7))
 
 *This was something that had been knocking around my head for literally years, hahaha.*
 
