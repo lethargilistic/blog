@@ -12,13 +12,13 @@ the very specific, unique reasons behind why I didn't like it. Rey is not an iss
 what the story's themes say as a response to the original* Star Wars *films' inspirational themes. Namely,* The Force Awakens
 *and* The Last Jedi *thought those movies were wrong to try to inspire people to rebel. The sequels want people to say in their
 lanes and accept the inevitability of their struggles against and defeat at the hands of unknowable forces. They are hopeless,
-dreary affairs that ask you to just resist, and I go into why in more depth here.*
+dreary, toxic affairs that ask you to just resist, and I go into why in more depth here.*
 
 *The only other thing to say is that, if you say "This movie sucks. We should remake it
 differently," you want copyright reform.* The Force Awakens *AND* The Last Jedi *ARE BOTH "*Star Wars* sucks. Let's remake it
 differently." And they are produced by a company that works to prevent us all from exercising that right on works going
 back to* Steamboat Willie. *The Sequel Trilogy's existence could be summed up as "We only care about stopping remakes 
-made by poor people."*
+made by poor people." If Star Wars were in the public domain, as it definitely should be after 41 years, anyone and everyone would be able to release *Star Wars* content, which would allow for, on one hand, commercial responses to garbage like this that currently monopolizes the story, and on the other, would relieve Disney of the self-imposed and inappropriate burden of being one company charged with creating content for the entire world, a promise they cannot and should not try to deliver. On a Myneyrsh's third, it would relieve the creative team behind these projects (because Disney would still be able to make them) from being the sole target of negative criticism. Preventing things from entering the public domain leaves people without a completely legal outlet for disagreement outside of silence or rage.*
 
 *I'm not terribly interested in whether or not you liked the movie, no.*
 
