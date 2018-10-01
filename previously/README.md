@@ -1,4 +1,4 @@
-# B-Sides and Rarities
+# Rarities and B-Sides
 
 These are things I posted around the Internet before I started keeping track of major pieces with this repo.
 
