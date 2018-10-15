@@ -2,7 +2,7 @@
 
 (2018-10-14)
 
-*The letter I sent to the whiletruefm patrons when I announced the show's cancellation. Sad day.*
+*The letter I sent to the* whiletruefm *patrons when I announced the show's cancellation. Sad day.*
 
 -----
 
