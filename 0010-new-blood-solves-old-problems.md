@@ -1,0 +1,21 @@
+# New Blood Solves Old Problems
+
+(2018-10-28, [dev.to](https://dev.to/lethargilistic/new-blood-solves-old-problems-j7l))
+
+One of my favorite teachers at the University of Washington was an artifical life scholar named Chris Marriot. Like a lot of the teachers I enjoyed most, he spent considerable time in class telling us stories.
+
+The one from him that runs through my mind the most, years on, was about P=NP, an unsolved problem in computer science. Basically, it's about whether or not every problem that can be verified quickly can be solved quickly. The question was first asked informally in the 1950s, and to summarize the last 70 years of research too briefly: we don't fucking know. As of now, a very common intuition about the issue is that P probably does not equal NP simply because, if they were equivalent, we would have figured that out by now. A conclusive proof one way or the other has eluded generations of the best computer scientists who have ever lived.
+
+So in walks a young Chris Marriot during his graduate student career or soon afterward, determined to take a crack at something highly credentialed scientists all over the world, not to mention several of his idols, were stumped by. His grasp of the material was certainly not as strong as theirs won over decades of study, and he wasn't necessarily *likely* to break much new ground. Even so, he felt it was important that he take his best shot at it from his sophomoric position precisely because it was sophomoric. 
+
+If a problem is stalemated, there is always a chance that the stalemate exists because the people in charge of it are in a rut. The most difficult of these problems will not be solved without the new blood and fresh eyes of a new generation. The early days exploring the material are critical to progress of the entire field, as their blank slates approach the issues at hand without the weight of dogma enshrined by the academic orthodoxy. It is the neophyte's duty to challenge that conventional wisdom in order to generate new thought.
+
+This is why we must not treat junior colleagues as submissive or children, to be seen and not heard, or as irritants to be merely tolerated. Properly encouraged and nurtured, they are an organization's shortcut to critical insights into how its work could be revolutionized. They will notice all the wrinkles that people have learned to accept and take for granted, no matter how. They will be the ones to whom a completely different take on the subject will seem the most natural.
+
+This is why I'll always share my thoughts about whatever I'm researching (even if it's just rambling on Twitter). It's important to acknowledge that status as the new person in a group, so my approach to maximizing time spent as a newbie is to hold to two rules of engagement.
+
+First, I make sure not to talk over anyone else. This is pretty easy these days [with Twitter](https://twitter.com/search?q=copyright%20from%3Alethargilistic&s=09), but it is important to be cognizant of your place in the greater intellectual landscape. Don't force yourself into the conversation at others' expense and resolve early to do your part in promoting the most lively and diverse discourse possible. After all, you're there to be different, so you should make sure everyone feels OK being there and exploring together. The conversation should be better with you there. Share all the cool stuff you find.
+
+Second, I always listen to feedback. This is the time for experimentation and even letting your freak flag fly. That said, it is equally time for questions and testing your ideas with help from knowledgeable people. Likely, you'll get thrown a new piece of information or perspective to test your radical theories against. Don't poison that relationship by being an asshole, not taking criticism, or generally not reciprocating the respect you demand from them while they listen you your crap. New blood might bring new answers, but old eyes have seen a lot of what's already out there.
+
+Be confident, but humble. Ultimately, Dr. Marriot wasn't able to prove anything novel about P=NP. He tried. His example is something we should encourage in all areas of study, and all sectors of work. We would all be better off.
