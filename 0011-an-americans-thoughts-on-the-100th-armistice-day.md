@@ -8,8 +8,8 @@ admiration of past glories, where we entered late and immediately began
 relitigating history to cast ourselves as singular heroes. To that end, our
 cultural memory fixates on the "great" acts of war we committed. Lost in this
 glory-seeking revisionism is the scale of destruction in the months between
-those select moments. Millions die in those gaps, but they're just numbers.  
-Instead, we selectively revere the terrible things done to us without any
+those select moments. Millions die in those gaps, but they're just numbers.
+Instead, we selectively revere the terrible things done to us without any 
 self-awareness of the similarities, and neglect the rest.
 
 It's a shame that I have to turn to World War II for the analogy, but we
