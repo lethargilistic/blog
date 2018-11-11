@@ -8,6 +8,8 @@ I'm sure I'll also end up including things written after I started keeping track
 
 ## Other places
 
-Offhand, you can find my old Tumblr blog at [lethargilitic.tumblr.com](http://lethargilistic.tumblr.com/). It's mostly a journal of my time at the Universit of Washington, Tacoma, and has some posts from 2015 that document how terrible I was feeling during my final year.
+Offhand, you can find my old Tumblr blog at [lethargilitic.tumblr.com](http://lethargilistic.tumblr.com/). It's mostly a journal of my time at the University of Washington, Tacoma, and has some posts from 2015 that document how terrible I was feeling during my final year.
+
+I am also [a LibriVox reader](https://librivox.org/reader/12667).
 
 [Follow me on Twitter @lethargilistic!](https://twitter.com/lethargilistic)
