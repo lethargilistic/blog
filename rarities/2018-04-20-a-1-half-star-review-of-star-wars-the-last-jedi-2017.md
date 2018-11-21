@@ -1,7 +1,5 @@
 # A ½ Star Review of Star Wars: The Last Jedi
 
-(2018-04-20, [letterboxd](https://letterboxd.com/lethargilistic/film/star-wars-the-last-jedi/))
-
 *I wrote about 70% of this, stream-of conscious, immediately after I walked out of the theatre and got home from a Lyft ride,
 leaving my dad and brothers at the theatre. It was a very unpleasant experience in its own right, explaining why I hated a movie 
 that I wanted to like more than any other I'd seen before. More than that, a lot of people expected me to hate it, and did so for
@@ -23,6 +21,8 @@ made by poor people." If Star Wars were in the public domain, as it definitely s
 *I'm not terribly interested in whether or not you liked the movie, no.*
 
 -----
+
+(2018-04-20, [letterboxd](https://letterboxd.com/lethargilistic/film/star-wars-the-last-jedi/))
 
 I have never walked out of a movie before. I didn't do it because I wanted to hate the movie. I didn't do it because I was angry. I did it because, after an hour, I was profoundly sad. 
 
