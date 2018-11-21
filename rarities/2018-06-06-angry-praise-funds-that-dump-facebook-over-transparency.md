@@ -1,10 +1,10 @@
 # Angry! Praise Funds that Dump Facebook Over Transparency 
 
-(2018-06-06, [dev.to](https://dev.to/lethargilistic/angry-praise-funds-that-dump-facebook-over-transparency-ohd))
-
 *I originally wrote this as an op-ed for* Bloomberg Opinion, *but they didn't write me back about it, understandably so.*
 
 -----
+
+(2018-06-06, [dev.to](https://dev.to/lethargilistic/angry-praise-funds-that-dump-facebook-over-transparency-ohd))
 
 [Mark Gilbert's article in Bloomberg Opinion](https://www.bloomberg.com/news/articles/2018-06-22/dislike-sustainable-fund-says-dump-facebook) is framed as a practical evaluation of [Nordea Funds asset manager Sasja Beslik](https://www.bloomberg.com/news/articles/2018-04-05/facebook-has-become-a-pandora-s-box-of-risks-for-nordea-funds)'s decision to divest his fund of Facebook shares. Gilbert is probably far more qualified to write something like that than an unemployed software engineer, but the actual article has virtually nothing to do with the decision. Instead, it is a screed trying to justify the indefensible: profiteering off of Facebook's unethical lack of transparency and disregard for users rights that lead to scandals including Cambridge-Analytica.
 
