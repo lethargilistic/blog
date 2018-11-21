@@ -1,10 +1,10 @@
 # Have you gotten advice against something and then done that thing all the time? 
 
-(2018-08-20, [dev.to](https://dev.to/lethargilistic/have-you-gotten-advice-against-something-and-then-done-that-thing-all-the-time-fp7))
-
 *This was something that had been knocking around my head for literally years, hahaha.*
 
 -----
+
+(2018-08-20, [dev.to](https://dev.to/lethargilistic/have-you-gotten-advice-against-something-and-then-done-that-thing-all-the-time-fp7))
 
 In *Dynamics of Software Development*, something I haven't read, Jim McCarthy gives a list of rules to deal with interpersonal and political relationships in software. One of these is "Don't Flip the Bozo Bit," cautioning us all against completely shutting down our relationship with someone we work with. Even if we don't like them, they may still have an idea worthy of consideration, so disregarding all of their professional contributions is weakening the team arbitrarily.
 
