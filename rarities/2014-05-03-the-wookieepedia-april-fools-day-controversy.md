@@ -1,7 +1,5 @@
 # The Wookieepedia April Fools’ Day Controversy
 
-(2014-05-03, [thenerdemp.com](https://web.archive.org/web/20150328050520/http://thenerdemp.com/the-wookieepedia-controversy/))
-
 *I wrote this to protest an incident where Wookieepedia made a horrifically sexist April Fools' Day "joke" at the expense of women.
 Wookieepedia was taken over by a cadre of assholes who promoted their asshole friends during my several years 
 of contributing to the site, and as far as I've seen, they're still there being tyrants. Looking back on it, the controversy over the Breast article&mdash;namely, their fight to keep it in the face of everyone saying what they did was shitty&mdash;was a great example of how myopic nerd fiefdoms and wikis in particular get. They train their members to think only in terms of their internal rules and customs, as if their site exists in a vacuum, even though the site exists to serve people outside of that vacuum. You can see that in how many times Wookieepedians responded to the incident by saying a variation of "breasts are canon," as if that were even remotely a response to the outrage or a mitigating factor that would quelch that outrage among anyone who wasn't already a Wookieepedian insider.*
@@ -9,6 +7,8 @@ of contributing to the site, and as far as I've seen, they're still there being 
 *I didn't think this article was particularly well-written at the time, but it is a unique source for a number of insider links about the incident. To this day in 2018, the official post about [the 2014 April Fools' Day "joke"](https://starwars.wikia.com/wiki/Wookieepedia:April_Fools'_Day_2014) does not link to [the official statement](http://starwars.wikia.com/wiki/Wookieepedia:April_Fools'_Day_2014/Statement) about it (a textbook non-apology), so you have to know that it exists to find it.*
 
 -----
+
+(2014-05-03, [thenerdemp.com](https://web.archive.org/web/20150328050520/http://thenerdemp.com/the-wookieepedia-controversy/))
 
 My name is Mike Overby and I joined Wookieepedia in 2008, when I was thirteen. At the time, I did not know that googling my username, [NaruHina](https://web.archive.org/web/20150328050520/http://starwars.wikia.com/wiki/User:NaruHina), would turn back porn, I was so young. I first contributed to Wikia’s *Naruto* site. By the time I realized that, I had been a regular editor of Wookieepedia for some time and changing my name wasn’t really an option. In the almost six years since, I’ve put a frightening amount of time into the site, but I decided somewhat recently to (mostly) retire because it just didn’t feel as fun as it used to.
 
