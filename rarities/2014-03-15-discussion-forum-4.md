@@ -1,6 +1,6 @@
 # Discussion Forum 4
 
-*The online discussion forum promt invites you to analyze any art you want, and you pick* Tengen Toppa Gurren Lagann.
+*The online discussion forum prompt invites you to analyze any art you want, and you pick* Tengen Toppa Gurren Lagann.
 
 *You fucking weeb. (2018-11-21)*
  
