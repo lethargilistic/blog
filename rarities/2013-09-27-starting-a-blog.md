@@ -4,7 +4,9 @@
 
 *I used some janky service to post this originally, but moved to tumblr for the second post because it was an easy setup and I had some friends who used it.*
 
-*This was before I started openly using my name on the Internet, but more-than-likely after I had compromised that pseudoanonymity. (Nov 21, 2018)*
+*This was before I started openly using my name on the Internet, but more-than-likely after I had compromised that pseudoanonymity.*
+
+*I believe the "political book" was* Broke *by Glenn Beck. I was once a fan of his, but am no longer. I had stopped following him closely even by this point and buying that book second-hand was basically for old time's sake, but I remember reading about his coverage of the Boston Marathon bombing sometime after it happened and distancing myself from him completely. He accused an innocent man of being a third member of the bombing team on-air, basically. (Nov 21, 2018)*
 
 -----
 
@@ -18,4 +20,4 @@ I know a lot of fairly basic C++, and am currently learning from a book that I�
 
 I also know the Music Macro Language, which makes for a good distraction sometimes.
 
-I’m in the middle of many books at this point, including Code Complete by Steve McConnell,The Mythical Man-Month by Frederick Brooks,Fragile Things by Neil Gaiman, and a political book that would probably make half of you stop reading my blog right here. Don’t worry, my politics won’t come into the equation for this research blog (hopefully).
+I’m in the middle of many books at this point, including *Code Complete* by Steve McConnell, *The Mythical Man-Month* by Frederick Brooks, *Fragile Things* by Neil Gaiman, and a political book that would probably make half of you stop reading my blog right here. Don’t worry, my politics won’t come into the equation for this research blog (hopefully).
