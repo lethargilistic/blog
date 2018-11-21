@@ -1,14 +1,12 @@
 # A ½ Star Review of Star Wars: The Last Jedi
 
 *I wrote about 70% of this, stream-of conscious, immediately after I walked out of the theatre and got home from a Lyft ride,
-leaving my dad and brothers at the theatre. It was a very unpleasant experience in its own right, explaining why I hated a movie 
-that I wanted to like more than any other I'd seen before. More than that, a lot of people expected me to hate it, and did so for
-all the wrong reasons, which is eternally irritating in its own way.*
+leaving my dad and brothers at the theatre. It was a very unpleasant experience in its own right, explaining why I hated a movie more than any other I'd seen before when I went in wanting to like. More than that, a lot of people expected me to hate it, and did so for all the wrong reasons, which is eternally irritating in its own way.*
 
 *If you're less interested in reasing this because it's long, fine, but it describes
 the very specific, unique reasons behind why I didn't like it. Rey is not an issue of contention, for example; it's about
 what the story's themes say as a response to the original* Star Wars *films' inspirational themes. Namely,* The Force Awakens
-*and* The Last Jedi *thought those movies were wrong to try to inspire people to rebel. The sequels want people to say in their
+*and* The Last Jedi *thought those movies were wrong to try to inspire people to rebel. The sequels want people to stay in their
 lanes and accept the inevitability of their struggles against and defeat at the hands of unknowable forces. They are hopeless,
 dreary, toxic affairs that ask you to just resist, and I go into why in more depth here.*
 
