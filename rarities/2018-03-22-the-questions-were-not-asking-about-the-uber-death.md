@@ -1,11 +1,12 @@
 # The Questions We're Not Asking About the Uber Death 
-(2018-03-22, [dev.to](https://dev.to/lethargilistic/the-questions-were-not-asking-about-the-uber-death-fj5))
 
 *It came out later that the Uber developers deactivated the car's safety features like automatic stopping while the automated driver was engaged. That level of negligence leading to the death was murder. Full stop. Uber's developers murdered a woman, and they should be held personally accountable in addition to the corporation's receiving financial penalties. Our rush to automated vehicles should not be killing bystanders without penalties*
 
 *"But cars driven by humans kill people all the time." Yeah. And they should be held accountable if they negligently kill pedestrians, but we know that they generally aren't. Creating an automated system and shifting the goalpost blame for pedestrian deaths is extremely counterproductive to solving the human problem of assigning blame after a car accident&mdash;you ever notice that we immediately call it a car "accident," even before we figure out whether or not the cause of the crash was accidental?*
 
 -----
+
+(2018-03-22, [dev.to](https://dev.to/lethargilistic/the-questions-were-not-asking-about-the-uber-death-fj5))
 
 You've probably already heard about the death in Arizona. Some people are questioning whether or not the technology is safe. I'm not here to talk about them, so I'll dismiss those fears right off the bat. The technology is in its infancy today and you can use your imagination to picture where this will go in the long run. The future of automobiles is autonomous, and they will be safe by the time your descendants are calling what we drive today "dumb cars" like we call feature phones "dumb phones."
 
