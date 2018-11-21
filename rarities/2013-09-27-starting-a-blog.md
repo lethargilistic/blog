@@ -21,3 +21,5 @@ I know a lot of fairly basic C++, and am currently learning from a book that I�
 I also know the Music Macro Language, which makes for a good distraction sometimes.
 
 I’m in the middle of many books at this point, including *Code Complete* by Steve McConnell, *The Mythical Man-Month* by Frederick Brooks, *Fragile Things* by Neil Gaiman, and a political book that would probably make half of you stop reading my blog right here. Don’t worry, my politics won’t come into the equation for this research blog (hopefully).
+
+*#Journal #Code Complete #The Mythical Man-Month #Lafore C++*
