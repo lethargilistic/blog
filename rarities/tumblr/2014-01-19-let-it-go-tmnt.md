@@ -5,6 +5,9 @@
 (2018-12-06)
 
 -----
+
+(2014-01-19, [lethcasual.tumblr](https://lethcasual.tumblr.com/post/73917826799/booyakasha123-mighty-mutants#notes))
+
 >[Plush Leonardo in Elsa's dress from Frozen]
 >
 > That’s cute, Walmart.  
