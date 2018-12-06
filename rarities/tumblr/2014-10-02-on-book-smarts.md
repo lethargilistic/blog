@@ -6,7 +6,7 @@ because it was a necessary evil in my case, but you don't need the latest, great
 new topic.*
 
 *Shout-out to my college engineering teacher, Ken Schroeder, who gifted me my first programming book sometime in 2012-2013.
-It was *Starting Out with Games & Graphics in C++, 2nd Edition* by Tony Gaddis. If you want to start learning how to make games,
+It was* Starting Out with Games & Graphics in C++, 2nd Edition *by Tony Gaddis. If you want to start learning how to make games,
 as I did, do not start by learning C++. Get to making games as quickly as possible.*
 
 -----
