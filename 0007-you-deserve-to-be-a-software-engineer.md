@@ -24,9 +24,7 @@ If you're looking for one key takeaway from this post, let it be this mantra: **
 
 The truth is that a junior developer "deserves" to work just as much as a senior developer; every senior developer began their career as a junior. Furthermore, [if an organization-of-size doesn't hire any junior developers, then it doesn't deserve its seniors](http://isaaclyman.com/blog/posts/junior-developers/). If your organization does not hire juniors, then it is unconscionable and morally reprehensible to say "everyone should code" and give a generation false hope of overcoming class struggles. This is especially true in the United States, where I'm from, because any time someone says you should be "thankful for having a job" you can feel free to rephrase that for them as "thankful for having health insurance and the means to live independently."
 
-Seniors Deserve to be Software Developers.
-
+Seniors Deserve to be Software Developers.  
 Juniors Deserve to be Software Developers.
-
 
 You Deserve to be a Software Developer.
