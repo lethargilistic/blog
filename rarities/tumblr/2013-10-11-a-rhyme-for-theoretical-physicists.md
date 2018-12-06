@@ -10,8 +10,8 @@ My favorite was a parody of "All Along the Watchtower" about joining up with Str
 The line "All Aboard the Strexcorp Train" still pops in my head from time to time. I loved, loved, 
 loved Strexcorp when I was into* Welcome to Night Vale *several years ago. I remember doing a little RP session on my 
 first night in Fanvale where I was a Strex employee where threatening to give Sammy a heart monitor, courtesy of Strex.
-She "noped out." It was great. That was how we met. I remember that I misgendered Jayce as a girl that night, too, lol. 
-(2018-12-06)*
+She "noped out." It was great. That was how we met. I remember that I misgendered Jayce as a girl that night, too, lol.*
+(2018-12-06)
 
 ----
 
