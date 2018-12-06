@@ -10,7 +10,7 @@
 
 -----
 
-(2013-09-00, [tumblr](http://lethargilistic.tumblr.com/post/62403821455/starting-a-blog))
+(2013-09-00, [lethargilistic.tumblr](http://lethargilistic.tumblr.com/post/62403821455/starting-a-blog))
 
 Hello there, my handle is lethargilistic, and it’s my dream to be a game programmer. I have only the vaguest idea of how to do that at this point, so I feel like I need to organize my thoughts. I may not be able to control all this information that I’m bombarding myself with daily, but I can control how I handle it. Besides that, my browser bookmarks are getting kinda crowded. ^^’
 
