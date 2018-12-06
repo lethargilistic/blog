@@ -15,7 +15,7 @@ She "noped out." It was great. That was how we met. I remember that I misgendere
 
 ----
 
-(2013-10-11, [tumblr](https://lethcasual.tumblr.com/post/63764975226/the-absolute-funniest-posts-monotoneminor))
+(2013-10-11, [lethcasual.tumblr](https://lethcasual.tumblr.com/post/63764975226/the-absolute-funniest-posts-monotoneminor))
 
 >[gifs from *Tangled* showing Flynn launched into the air to land astride his horse.]
 >
