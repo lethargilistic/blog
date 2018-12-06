@@ -4,7 +4,7 @@
 
 -----
 
-(2013-09-27, [tumblr](http://lethargilistic.tumblr.com/post/62404208472/moving-over-to-tumblr))
+(2013-09-27, [lethargilistic.tumblr](http://lethargilistic.tumblr.com/post/62404208472/moving-over-to-tumblr))
 
 Well, I realized the place I was initially going to keep my learning blog had a terrible interface and I knew I was going to have to move or face conversing with myself negatively.
 
