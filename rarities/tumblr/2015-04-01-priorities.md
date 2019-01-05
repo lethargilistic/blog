@@ -6,7 +6,7 @@ after this, and they had cameras set up in case the killer came by to gloat. Peo
 the spot where he died that's still there. Someone played a ukelele solo for him. Easton, whom I had broken the news to over Skype earlier,
 talked about how he was so sick of his friends dying. Devona and Ashlee were there. Eric Lanoue had me hold his candle and I placed it on
 Daniel's memorial because I had to leave. Of course, I immediately ran into him after having done so, and I've always been sorry about that.
-When I go by that intersection, I see that cross is still decorated sometimes.*
+When I go by that intersection, I see that cross is still decorated sometimes. [They never found the killer.](http://www.tpcrimestoppers.com/case.php?id=875)*
 
 *Completely unrelated, although time limits* were *on my mind, I told the woman I was interested in at the time how I felt that night. 
 She didn't reject me. I was ecstatic about that, weak knees and smiles and everything. It did not go well. April 2015 was Hell, and to this
