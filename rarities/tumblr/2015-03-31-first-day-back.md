@@ -1,0 +1,8 @@
+# First Day Back
+(2015-03-31, [lethargilistic.tumblr](http://lethargilistic.tumblr.com/post/115103020086/first-day-back))
+
+Last week went fine. I had a great time hanging out with my friends, and I spent a lot of time on a cover letter for an application. I didn’t end up doing a  regex engine, but I did start playing with matplotlib’s pyplot library and the Social Security Administration’s baby name registry. I considered working with name data from other countries, but I discovered that America is the only country anal retentive enough to record baby names for over 100 years. Go figure. I started a github repo for this, and I’ll try answering whatever questions about this data I can think of, until I get bored with the data and try something else. Maybe another part of matplotlib, maybe just a different set of data. If you have a question about names, do ask. I’ll try to answer it.
+
+So I started school up again. My first day went well enough. I felt really good in the morning, despite my early class. Then I had to stay at school all day until my seminar at 6:30PM. Then, suddenly, I felt horrible and had to leave early. That was some feel, I gotta tell ya. But, between then, I worked on my mentoring job, bringing my new partner up to speed and remaking the lab for next week. I just have to make the answer key and I’ll be done for the week, basically. Oh, boy, when that picks up again…
+
+I’m taking the same teacher I had for Data Structures for my Algorithms class, and his late policy is not following. He has a grader this quarter, so he can’t make everyting due at the final. I get that. And, heck, it’s probably better this way. My homework won’t build up like it did last quarter.
