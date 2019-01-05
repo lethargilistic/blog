@@ -37,7 +37,8 @@ That's burned into my skull, even now.*
 ever write naturally today. My thoughts are always too formal for that kind of random metaphor, but I also feel like that
 makes my writing lack spice sometimes. I worry about sounding repetitive with the "Moreover"s and "Firstly"s and whatnot.*
 
-*This is bad, but it was written by a 13-year-old, so whatever. Just confront the apologia, not the weird structure.*
+*This is bad, but it was written by a 13-year-old, so whatever: what matters is the attempt at addressing things that matter.
+Just confront the apologia, not the weird structure.*
 (2019-01-04, during transcribing)
 
 ----
