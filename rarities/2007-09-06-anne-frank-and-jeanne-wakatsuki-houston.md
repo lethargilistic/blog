@@ -18,14 +18,14 @@ But, then, what about that school wasn't?*
 him. He was a very informal, nice man. He taught me algebra in 6th Grade and geometry in 8th. I remember that he wore shorts to work
 on what was one of his first days teaching at the school, and I think he got in trouble for it. I also remember one time in 9th Grade
 when I had a bathroom emergency after school, so I trespassed on Keithley to relieve myself in one of the building bathrooms.
-I ran into him, we had a nice chat, and he didn't report me. That was probably the last time I saw him. This trespassing also happened
+I ran into him, we had a nice chat, and he didn't report me. That was probably the last time I saw him. This trespassing also happened for the same reason
 much later, probably in 11th or 12th Grade, when I ran into my 6th Grade Language Arts teacher, Mrs. Smith. I don't think she recognized
-me, which is good, because I think school was in session then, and I was not remotely tight with her. She had a baby in the summer before
+me, which is good, because I think school was in session then, and I was not tight with her. She had a baby in the summer before
 my year with her, so we had a sub for the first half, whose name I've forgotten. I remember losing basically all memories of 6th Grade
 strangely early, as in by the end of 8th, but I do remember Mrs. Smith was pissed because the sub had us start journaling in the Daybooks
 before she returned.*
 
-Miss Shawley gave this paper 23/25 and wrote "You have some great views and word choices. You threw me off on the paragraph 
+*Miss Shawley gave this paper 23/25 and wrote "You have some great views and word choices. You threw me off on the paragraph 
 I commented on!" She was confused by the second paragraph, where I accidentally combined the two historical figures.* (2019-01-04, before transcribing)
 
 *What the fuck is it with my old history papers and low-to-mid-key downplaying atrocities? Disavowed!*
@@ -37,7 +37,7 @@ That's burned into my skull, even now.*
 ever write naturally today. My thoughts are always too formal for that kind of random metaphor, but I also feel like that
 makes my writing lack spice sometimes. I worry about sounding repetitive with the "Moreover"s and "Firstly"s and whatnot.*
 
-*This is bad, but it was written by a 13-year-old, so whatever. Just confront the apologia, not the weird structure.
+*This is bad, but it was written by a 13-year-old, so whatever. Just confront the apologia, not the weird structure.*
 (2019-01-04, during transcribing)
 
 ----
