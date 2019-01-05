@@ -15,7 +15,7 @@ though it's not the same as it was between us.* (2019-01-05)
 
 -----
 
-(2015-04-01)
+(2015-04-01, [lethargilistic.tumblr](http://lethargilistic.tumblr.com/post/115185803746/priorities))
 
 So today I woke up to news that an acquaintance of mine from school was murdered two minutes from here on Monday night. I didn’t actually know what had happened for a while, but that was a shock. Then I read the news later, and the details are just dreadful. We weren’t close or even friends, really, but he was a good, decent guy. That’s the best word I have to describe him really: decent. I certainly wasn’t, back at Washington High. He was someone who should have been around longer than 20 years. The person who killed him is trash, and I hope they’re locked up.
 
