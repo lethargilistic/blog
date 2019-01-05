@@ -1,6 +1,6 @@
 # Rarities and B-Sides
 
-These are things I posted around the Internet before I started keeping track of major pieces with this repo.
+These are things I wrote before I started keeping track of major pieces with this repo. This started with various internet posts, but I'm expanding it to anything I've written that has survived enough for me to be able to type it out. After all, everyone comes from somewhere, right?
 
 I definitely lament that my comic reviews for *The Nerd Empire* did not survive in the Wayback Machine. Late-stage drafts may still be on my parents' computer, though.
 
