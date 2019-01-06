@@ -23,7 +23,7 @@ I had at the time (I never did succumb to that sort of propaganda), and focus on
 
 *Basically, I disavow this paper.*
 
-*Speaking of how the United State' education system developed, [C-SPAN has a really interesting lecture]( https://www.c-span.org/video/?452465-1/pilgrims-history-textbooks) on how our cultural memories are designed through the education system, focusing on how the Pilgrims became the symbol for America as “different” in the grand scheme rather than the actual first colony, Jamestown.*
+*Speaking of how the United States' education system developed, [C-SPAN has a really interesting lecture]( https://www.c-span.org/video/?452465-1/pilgrims-history-textbooks) on how our cultural memories are designed through the education system, focusing on how the Pilgrims became the symbol for America as “different” in the grand scheme rather than the actual first colony, Jamestown.*
 
 *It's pretty clear I didn't actually have a strong enough through-line for this paper. It wasn't helped by the strict paragraph topic structure imposed by the teacher, but I don't think there was much of a paper in trying to combine these minor causes of the Civil War. It ended up being a (stupid) description more than a historical argument.*
 
