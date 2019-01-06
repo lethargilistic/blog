@@ -1,12 +1,12 @@
 # Blue Book: Johnathan Edwards and Colonization
 
-*This was a Blue Book exam from my first quarter in college, taking American Literature I under Beth Stevens. It dovetailed extremely well with my American History I class that quarter, which also covered the colonial period, which I think influenced Part 2.
+*This was a Blue Book exam from my first quarter in college, taking American Literature I under Beth Stevens. It dovetailed extremely well with my American History I class that quarter, which also covered the colonial period, which I think influenced Part 2.*
 
 *I feel a bit like a broken record, saying this of most of my teachers, but she was very nice and I remember adoring her class. It was the first time I really dug into primary sources from colonial American history, and I found it fascinating. Of her, I remember, of all things, that she refused to assign* Moby Dick *for student reading because she hated it and that she named one of her children "Hunter." Of all things.*
 
 *This quiz probably had us choose from a number of prompts to write two responses. Part 1 is about Johnathan Edwards, a preacher famous for his "Sinners in the Hands of an Angry God" metaphor. Part 2 is about Colonization. Beth wrote a number of encouraging "yes!" and "exactly!" comments throughout, concluding "overdeveloped, but excellent" on Part 1 and "very, very nicely developed, presented" on Part 2. I got full marks, so I included it in my high school portfolio as an example of my Running Start college work.*
 
-*The textual citations are to* The Norton Anthology of American Literature Volume 1 (Shorter Seventh Edition) edited by Nina Baym, *if you care about that sort of thing.*
+*The textual citations are to* The Norton Anthology of American Literature Volume 1 (Shorter Seventh Edition) *edited by Nina Baym, if you care about that sort of thing.*
 
 *I don't believe I ever had another class that asked us to use Blue Books for tests.* (2019-01-06, before transcription)
 
