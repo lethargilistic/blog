@@ -4,6 +4,8 @@
 
 *The textual citations are to* The Norton Anthology of American Literature Volume 1 (Shorter Seventh Edition) *edited by Nina Baym, if you care about that sort of thing.* (2019-01-06)
 
+-----
+
 (2010-00-00)
 
 # Part 1: "Life in the Iron Mills"
