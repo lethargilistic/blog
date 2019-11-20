@@ -47,11 +47,11 @@ enforcement of plagiarism norms? To me, it seems like the benefit is supposed to
 - being abnormal is a crime punishable by public humiliation.
 
 This is on top of further fact that essentially all of these children's work will be thrown away after being graded. This proves to the 
-child without ever quite telling them explicitly that what they create with their time and labor if for their unquestionable superior's 
+child without ever quite telling them explicitly that what they create with their time and labor is for their unquestionable superior's 
 benefit and not their own. Now, I ask you, do the birds sing just because they believe a human, christened with intelligence, will be there
 to score it with an alphabet that skips 'E' just to make sure the prisoners and guests will know they've truly Failed? When I was in 
 school, the wardens made a big deal about also dropping 'D' because it was a redundant non-passing score. Once dedicated to this system of
-scoring, it seems like the wardens thought making the sorting system more efficient was a more salient goal than measuring granular 
+scoring, it seems like the wardens thought making its student sorting more efficient was a more salient goal than measuring granular 
 levels of student's actual learning. It is the same with plagiarism norms.
 
 When I naively presume that the purpose of academic writing is to inform and persuade the public about things of importance, I am told that 
