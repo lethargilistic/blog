@@ -21,7 +21,7 @@ as the rank-and-file.
 But eventually the guest does check out and leave for the realm of whatever worldly pursuit they choose. Practically, this means they join 
 the increasingly casualized professional workforce and hope to maybe get a job doing something they liked to do while a guest at the 
 Academic Bates Motel instead of subsisting on temp work. (Almost needless to say, there is no guarantee that any employer will give them a 
-job and plenty of unwritten reasons why existing abnormally means we are unworthy of working, but we're not supposed to talk about that.) 
+job and plenty of unwritten reasons why existing abnormally means they are unworthy of working, but we're not supposed to talk about that.) 
 Personally, it's been about four years since I checked out and apparently that's so long ago that employers collectively pretend I never 
 checked in at all. For all the admonishment I endured to behave in certain ways or refrain from certain things—to never plagiarize or patch-
 write being but one—those rules sure don't seem to provide for me now that I live outside the support structures offered by academics to 
@@ -65,7 +65,7 @@ all.
 We go to school to learn how to learn and become better citizens. We are encouraged to question everything about society and the universe 
 except extra-legal property rights important to academics with absurdly complete control over our intellectual development from the 
 time we're 5 years old. What we learn after almost two decades of indoctrination is to obey the moral supremacy of scholastic 
-credit-capitalists and to never question these professional norms' weight always slung over our backs. Once this publicly-funded psychosis 
+credit-capitalists and to never question their professional norms' weight slung over our backs. Once this publicly-funded psychosis 
 is dolled up as a congential moral imperative, we're not even allowed to question what it is anymore, let alone whether the form it takes is 
 reasonable. 
 
