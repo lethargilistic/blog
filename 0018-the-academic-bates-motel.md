@@ -15,7 +15,7 @@ hosts one day, maybe, but we're not supposed to talk about them.) The guests are
 mingle and learn a little something about the world before they leave. The hosts will remain forever, and they find the best way to keep 
 themselves entertained through the long years of marshaling guests and reducing the janitorial staff to contract work is to create norms 
 that define their job done "well." The bed must be tucked in from the left, the towels must be lain just so, the toilet paper must be folded 
-with perfect 45 degree angles, and-most importantly-it is improper to ask why the senior staff never seems to do any of this so meticulously 
+with perfect 45 degree angles, and—most importantly—it is improper to ask why the senior staff never seems to do any of this so meticulously 
 as the rank-and-file.
 
 But eventually the guest does check out and leave for the realm of whatever worldly pursuit they choose. Practically, this means they join 
@@ -23,15 +23,15 @@ the increasingly casualized professional workforce and hope to maybe get a job d
 Academic Bates Motel instead of subsisting on temp work. (Almost needless to say, there is no guarantee that any employer will give them a 
 job and plenty of unwritten reasons why existing abnormally means they are unworthy of working, but we're not supposed to talk about that.) 
 Personally, it's been about four years since I checked out and apparently that's so long ago that employers collectively pretend I never 
-checked in at all. For all the admonishment I endured to behave in certain ways or refrain from certain things-to never plagiarize or patch-
-write being but one-those rules sure don't seem to provide for me now that I live outside the support structures offered by academics to 
-their fellow academics. I am not an academic anymore; I'm just a former guest. I got whatever benefit I was going to get by following these 
-norms from five years as an undergraduate academic. That came after having dealt with this behavioral conditioning for nearly my entire life 
-from 5 to 21-years-old.
+checked in at all. For all the admonishment I endured to behave in certain ways or refrain from certain things—to never plagiarize or 
+patch-write being but one—those rules sure don't seem to provide for me now that I live outside the support structures offered by academics 
+to their fellow academics. I am not an academic anymore; I'm just a former guest. I got whatever benefit I was going to get by following 
+these norms from five years as an undergraduate academic. That came after having dealt with this behavioral conditioning for nearly my 
+entire life from 5 to 21-years-old.
 
 The conditioning required by the Academic Bates Motel's peculiar professional standards is considered so important 
-that the Motel franchised itself into the prisons where we consign every child in America. Their teachers are aspiring-
-hosts who wouldn't or couldn't hack it at the Academic Bates Motel, so they became wardens. Our children spend their workdays slaving away 
+that the Motel franchised itself into the prisons where we consign every child in America. Their teachers are aspiring-hosts 
+who wouldn't or couldn't hack it at the Academic Bates Motel, so they became wardens. Our children spend their workdays slaving away 
 while more and more pressure is placed on them to conform as prisoners so that they will succeed as guests and then, it's supposed, they 
 will be attractive to employers thereafter. (Of course, this means that the significant time children spend as prisoners 
 is considered less and less valuable to their overall lives, and that this effect compounds over generations of prisoners, but we're not 
@@ -71,5 +71,5 @@ reasonable.
 
 *They do not kill us at the Academic Bates Motel. They check us in, they take our cash, they check us out, and they give us our parting 
 gifts. But they can never leave. After the hosts wave us off, the smile fades. Their arm falls to their side. They turn, march up the 
-stairs, and apply the lipstick they keep under that cap-yes, they're already wearing the gown. "Hello Mother. Another class is on their way 
+stairs, and apply the lipstick they keep under that cap—yes, they're already wearing the gown. "Hello Mother. Another class is on their way 
 home to you."*
