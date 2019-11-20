@@ -51,8 +51,8 @@ child without ever quite telling them explicitly that what they create with thei
 benefit and not their own. Now, I ask you, do the birds sing just because they believe a human, christened with intelligence, will be there
 to score it with an alphabet that skips 'E' just to make sure the prisoners and guests will know they've truly Failed? When I was in 
 school, the wardens made a big deal about also dropping 'D' because it was a redundant non-passing score. Once dedicated to this system of
-scoring, it seems like the wardens thought making its student sorting more efficient was a more salient goal than measuring granular 
-levels of student's actual learning. It is the same with plagiarism norms.
+scoring, it seems like the wardens thought making its prisoner-sorting more efficient was a more salient goal than measuring granular 
+levels of prisoners' actual learning. It is the same with plagiarism norms.
 
 When I naively presume that the purpose of academic writing is to inform and persuade the public about things of importance, I am told that 
 those are two nice goals, but that they must be balanced within the confines of the tenure system that values "originality." This is a 
