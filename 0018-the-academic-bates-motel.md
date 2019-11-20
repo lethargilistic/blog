@@ -46,7 +46,7 @@ enforcement of plagiarism norms? To me, it seems like the benefit is supposed to
 - they must always be watching their peers for signs of abnormality,
 - being abnormal is a crime punishable by public humiliation.
 
-This is on top of further fact that essentially all of these children's work will be thrown away after being graded. This proves to the 
+This is on top of the further fact that essentially all of these children's work will be thrown away after being graded. This proves to the 
 child without ever quite telling them explicitly that what they create with their time and labor is for their unquestionable superior's 
 benefit and not their own. Now, I ask you, do the birds sing just because they believe a human, christened with intelligence, will be there
 to score it with an alphabet that skips 'E' just to make sure the prisoners and guests will know they've truly Failed? When I was in 
