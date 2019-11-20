@@ -51,14 +51,16 @@ child without ever quite telling them explicitly that what they create with thei
 benefit and not their own. Now, I ask you, do the birds sing just because they believe a human, christened with intelligence, will be there
 to score it with an alphabet that skips 'E' just to make sure the prisoners and guests will know they've truly Failed? When I was in 
 school, the wardens made a big deal about also dropping 'D' because it was a redundant non-passing score. Once dedicated to this system of
-scoring, it seems like the wardens thought making the sorting system more efficient was a more salient goal than measuring more granular 
-levels of student's actual learning. It is the same with plagiarism norms. When I naively presume that the purpose of academic writing is to 
-inform and pursude the public about things of importance, I am told that those are two nice goals, but that they must be balanced within the 
-confines of the tenure system that values "originality." This is a ginned up way of saying that the academic's benefit to the public is not 
-important when compared to the tenure committee's self-imposed interest in advocating against plagiarism. The system is its own 
-justification. The importance of what prisoners and guests and slaves accomplish is diminished to imperceptibility, then the hosts are 
-judged solely by their fidelity to the system. Students' work is read once and is destined for the trash and, likewise, the professor is
-reduced to a list of "original" papers the tenure committee has never read at all.
+scoring, it seems like the wardens thought making the sorting system more efficient was a more salient goal than measuring granular 
+levels of student's actual learning. It is the same with plagiarism norms.
+
+When I naively presume that the purpose of academic writing is to inform and pursude the public about things of importance, I am told that 
+those are two nice goals, but that they must be balanced within the confines of the tenure system that values "originality." This is a 
+ginned up way of saying that the academic's benefit to the public is not important when compared to the tenure committee's self-imposed 
+interest in advocating against plagiarism. The system is its own justification. The importance of what prisoners and guests and slaves 
+accomplish is diminished to imperceptibility, then the hosts are judged solely by their fidelity to the system. Students' work is read once 
+and is destined for the trash and, likewise, the professor is reduced to a list of "original" papers the tenure committee has never read at 
+all.
 
 We go to school to learn how to learn and become better citizens. We are encouraged to question everything about society and the universe 
 except extra-legal property rights important to academics with absurdly complete control over our intellectual development from the 
