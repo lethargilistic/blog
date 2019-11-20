@@ -26,8 +26,8 @@ Personally, it's been about four years since I checked out and apparently that's
 checked in at all. For all the admonishment I endured to behave in certain ways or refrain from certain things—to never plagiarize or 
 patch-write being but one—those rules sure don't seem to provide for me now that I live outside the support structures offered by academics 
 to their fellow academics. I am not an academic anymore; I'm just a former guest. I got whatever benefit I was going to get by following 
-these norms from five years as an undergraduate academic. That came after having dealt with this behavioral conditioning for nearly my 
-entire life from 5 to 21-years-old.
+these norms from five years as an undergraduate student. The price for this was being subjected to behavioral conditioning for nearly my 
+entire life, from 5 to 21-years-old.
 
 The conditioning required by the Academic Bates Motel's peculiar professional standards is considered so important 
 that the Motel franchised itself into the prisons where we consign every child in America. Their teachers are aspiring-hosts 
