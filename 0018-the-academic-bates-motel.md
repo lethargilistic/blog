@@ -1,7 +1,7 @@
 # The Academic Bates Motel
 (2019-11-20)
 
-This morning, after a nudge from my friend Brian L. Frye, I read Agnes Collard's 
+This morning, after a nudge from my friend Brian L. Frye, I read Agnes Callard's 
 ["Is Plagiarism Wrong"](https://thepointmag.com/examined-life/is-plagiarism-wrong-agnes-callard/) and, to me, the most significant part is 
 the recollection of her teacher introducing her to plagiarism norms through public humiliation when she was six-years-old. Anti-plagiarism 
 norms had nothing to do with what this child wanted out of life *a priori*, yet the teacher projected this value as a natural law. Perhaps, 
