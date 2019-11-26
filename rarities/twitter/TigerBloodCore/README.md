@@ -1,5 +1,7 @@
 # @TigerBloodCore (Chuck Tigre-Ramirez)
 
+([twitter](https://twitter.com/TigerBloodCore))
+
 This Twitter account was part of a big *Portal 2* RP scene that I was tertiarily involved with back in 2011.
 
 I first joined Twitter to stay in touch with my friend, Pentharis, and she was involved with this group in a bigger way. 
