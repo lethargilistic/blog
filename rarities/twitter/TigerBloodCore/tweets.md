@@ -11,3 +11,12 @@
 * ([14:42](https://twitter.com/TigerBloodCore/status/69517985261432833)) @Pentharis (He is the vengence and the night and has a wonderful singing voice) Here’s your cold coffee. Buh-bye.
 * ([14:47](https://twitter.com/TigerBloodCore/status/69519184442298368)) @Curiosity_Core Panicking is for amateurs and morons. @shadowyassassin @Pentharis We’re Vatican assassins. How complicated can it be?
 * ([14:49](https://twitter.com/TigerBloodCore/status/69519779077169152)) (IIf I can fit those into a Portal RP set in Victorian London, it's official: that guy RPing my android body has a quote for any occasion)
+* ([14:53](https://twitter.com/TigerBloodCore/status/69520795906478080)) #icantdothat Can't is the cancer of happen, you earthworms! #tigerblood
+* ([15:00](https://twitter.com/TigerBloodCore/status/69522435111792640)) I’m just going to sail across the winds of the universe with my goddesses. Buh-bye #tigerblood
+
+# October 19, 2011
+* ([10:29](https://twitter.com/TigerBloodCore/status/126711534058602497)) (Oh, what? I'm a core now too? *looks in a mirror* I AM NOTHING LIKE TIGERBLOOD CORE, GODDAMMIT!) @OEC_GLaDOS
+* ([10:33](https://twitter.com/TigerBloodCore/status/126712466322366464)) (On another note, how the hell did this account get 50 followers? Last I checked it (months ago) it only had 20. My main account has 80.)
+
+# November 18, 2011
+* ([12:48](https://twitter.com/TigerBloodCore/status/137633340432986112)) [Replying to @Hyperror] @Irish_Core (It's @lethargilistic)
