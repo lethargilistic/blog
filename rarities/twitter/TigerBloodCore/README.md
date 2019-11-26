@@ -7,5 +7,5 @@ She made the picture used for this account and a few of the other cores, such as
 I still have the original of that piece tucked away in the back of my ISP portfolio from high school.
 
 This account was a parody of the Charlie Sheen flameout that was happening at about the same time. I never even followed that closely,
-so the account probably wasn't even very true to it other than #WINNING and such. It was a dumb joke and we laughed. At its height, the
-account had about 50 followers, which was more than me at that time.
+so the account probably wasn't even very true to it other than #WINNING and such. It was a dumb joke I did for a day and we laughed.
+At its height, the account had about 50 followers, which was when I had 80.
