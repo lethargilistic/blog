@@ -1,5 +1,7 @@
 # @TigerBloodCore (Chuck Tigre-Ramirez)
 
+![tigerbloodcore](https://user-images.githubusercontent.com/5362035/69676132-f744cd00-1054-11ea-886f-1950de0ee282.png)
+
 ([twitter](https://twitter.com/TigerBloodCore))
 
 This Twitter account was part of a big *Portal 2* RP scene that I was tertiarily involved with back in 2011.
