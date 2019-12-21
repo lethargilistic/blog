@@ -1,6 +1,6 @@
 # The Yankee Invasion or the Southern Rebellion? Why the United States Fought a Civil War
 
-*This was one of the first papers I wrote in college, at Piece College Puyallup taking Mr. Churchill's US History I (Colonial to 1840).
+*This was one of the first papers I wrote in college, at Pierce College Puyallup taking Mr. Churchill's US History I (Colonial to 1840).
 It's probably the first term paper I ever did, and as such it reflects my high school writing style&mdash;I started college
 at 16 through Running Start&mdash;which was very verbose word soup. Only, that's not being entirely fair to myself because
 I remember Mr. Churchill had a very particular form that he wanted the paper to have, organized down to the vague subject
