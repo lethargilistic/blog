@@ -30,7 +30,7 @@
 
 (2014-07-09)
 
-(All citations are to *Information Ethics: Privacy, Property, and Power*, edited by Adam D. Moore. The essays cited were "Utilitarianism" by John Stuart Mill (pp.47-65) and "The Metaphysics of Morals" by Immanuel Kant (pp. 66-84)
+(All citations are to *Information Ethics: Privacy, Property, and Power*, edited by Adam D. Moore. The essays cited were "Utilitarianism" by John Stuart Mill (pp. 47-65) and "The Metaphysics of Morals" by Immanuel Kant (pp. 66-84)
 
 Workers and employers have needs, many of which are shared. For instance, both can have livelihoods that depend upon the subsistence of the company or a desire for a professional atmosphere while working. Other needs are more individual in nature, such as a feeling of belonging within the team or feelings of self-efficacy. The satisfaction of individual needs like those is of interest of the entire group: if all team members have many needs met, they will be more likely to synergize, be happier, and be more productive. It follows that a popular strategy for team membership is to foster this synergy from all levels, with employers and workers working together to please themselves and the other group.
 
