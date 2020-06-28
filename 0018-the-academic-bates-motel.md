@@ -14,7 +14,7 @@ Academy" and everyone gets the fancy title "academic." (Also, there are many adj
 hosts one day, maybe, but we're not supposed to talk about them.) The guests are there for myriad personal reasons, to sleep and eat and 
 mingle and learn a little something about the world before they leave. The hosts will remain forever, and they find the best way to keep 
 themselves entertained through the long years of marshaling guests and reducing the janitorial staff to contract work is to create norms 
-that define their job done "well." The bed must be tucked in from the left, the towels must be lain just so, the toilet paper must be folded 
+that define their job done "well." The bed must be tucked in from the left, the towels must be laid just so, the toilet paper must be folded 
 with perfect 45 degree angles, and—most importantly—it is improper to ask why the senior staff never seems to do any of this so meticulously 
 as the rank-and-file.
 
