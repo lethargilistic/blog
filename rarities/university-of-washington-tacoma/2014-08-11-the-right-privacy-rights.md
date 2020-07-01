@@ -8,7 +8,7 @@
 
 *There is a lot of assuming in this paper. No doubt I am rushing to get through it. Ms. Alward left notes in places where I could have expanded it. At the end of the first paragraph, where I say "each individual is entitled to an 'inviolate personality,'" she adds "or do we have the involate personality, which groudns the entitlement to privacy? i.e., is 'involate personality' similar to Kant's notion of 'humanity in the person'--something we necessarily have in virtue of being persons?" When I talk about the difficulty of enforcing privacy laws (goood job Past Mike; stay that little bit woke), she opines "Interesting distrinction--it raises the question of how privacy laws would be enforced under B&W's concept of privacy. If it's a civil violation (like slander & libel), then in a [case?], enforcement is still up to the individual since you'd have to bring a lawsuit to redress the wrong.*" Additionally, she thought my observation that both definitions require context to evaluate scenarios was a "nice point."
 
-*The score was 3.7 our of 4, with the note "Excellent work!" Seems pretty basic and inoffensive to me, and I'd rather it be that than terrible.* (2020-06-30, during transcription)
+*The score was 3.7 out of 4, with the note "Excellent work!" Seems pretty basic and inoffensive to me, and I'd rather it be that than terrible.* (2020-06-30, during transcription)
 
 -----
 
