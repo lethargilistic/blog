@@ -31,3 +31,9 @@ Even so, I also don’t want to pick up another book at the moment. I still need
 I got a little caught up in trying to impress at points, which was a mistake. My code got messy because of it, and taking leaps to solutions didn’t get me any closer. It just threw back the wrong answers in my face and made me feel silly and sweatier.
 
 I can program my way out of a paper bag. I just have to remember that I don’t need a flamethrower to do that.
+
+*#job search*
+
+----
+
+>masterworksinteractive said: Learning experience player! Wish you the best! 
