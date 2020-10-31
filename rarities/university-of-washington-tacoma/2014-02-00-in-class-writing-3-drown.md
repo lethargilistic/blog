@@ -1,4 +1,4 @@
-# In-Class Writing: *Drown*
+# In-Class Writing 3: *Drown*
 
 *I wrote this for Dr. Chamberlain's "Themes of American" literature class
 sometime between January and March 2014. I assume these in-class writings were prompted free writes, and this one is labeled a "revision exercise." It's about a short story in* Drown *by Junot Diaz.* (2020-10-30, before transcription)
