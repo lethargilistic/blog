@@ -7,6 +7,8 @@ of the traits that they are the stronger candidate. But, even then, professional
 connections, luck, and a compiled history of work that looks perfect from a distance than it does maintaining a masculine
 mindset. (2018-11-21)*
 
+*In the front of my binder for this class, I found a schedule. I marked 2014-01-27 as the day I lead this discussion. There's a copy of this proposal in the binder, although I think I copied this into my rarities from the actual file.* (2020-10-30)
+
 -----
 
 (2014-01-26)
