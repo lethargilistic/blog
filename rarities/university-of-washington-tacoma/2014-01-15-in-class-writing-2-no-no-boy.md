@@ -1,4 +1,4 @@
-#In-Class Writing 2: *No-No Boy*
+# In-Class Writing 2: *No-No Boy*
 
 *This was for Dr. Chamberlain's "Themes of American Literature" class. The theme was masculinity. This writing is undated, but I wrote it sometime between January and March 2014. It's some kind of short reflection on reading* No-No Boy *by John Okada. Dr. Chamberlain thought my topic was an "interesting point," so I assume it was a free write. It's double-spaced on a sheet of lined notebook paper. The first in-class writing was not double-spaced, so I guess I made a mistake there, haha. His main note was "Yes, just try to poiny yo specific language or wording in the text here," and he also wrote "Good work" at the end.* (2020-10-30, before transcription)
 
