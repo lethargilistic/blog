@@ -1,4 +1,4 @@
-#In-Class Writing 1: *In Our Time*
+# In-Class Writing 1: *In Our Time*
 
 *I didn't record the purpose or topic of this assignment, but it's about 3/4 of a page long, so I suspect it was just a free write about* In Our Time *by Ernest Hemingway. Specficially, I chose to write about "Chapter VI", which I remember as a striking section of the book to me, however short it was. I wrote this in Dr. Chamberlain's "Themes of American Literature" class, on one of the first days of class.*
 
